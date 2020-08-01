@@ -1,0 +1,2 @@
+# yellowscreen-BETA-
+hola comandante, Bienvenido a la isla yellow. es una isla muy bonita para divertirse y pasarla bien pero ten cuidado, porque hay enemigos, obstaculos,trampas y mas. Consigue el V.I.P para concegir mas desafios y ganarte monedas yellow para comprar pesonajes y crear tu propia isla yellow. ¿no es grandioso? puedes jugar con tus mejores amigos y mandarles regales para que sean mas amigos de lo que son. y si te creas una cuenta en el mes de septiembre te daremos el 
